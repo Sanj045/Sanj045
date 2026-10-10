@@ -7,5 +7,4 @@
 
 ### 📫 Contact me via:
 - EMAIL: luongthanhbao05@gmail.com
-- FB: https://www.facebook.com/bao.luongthanh.739/
-- INS: https://www.instagram.com/luongthanhbao_2110/
+
